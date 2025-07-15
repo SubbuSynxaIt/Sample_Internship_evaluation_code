@@ -1,1 +1,0 @@
-# Sample_Internship_evaluation_code
